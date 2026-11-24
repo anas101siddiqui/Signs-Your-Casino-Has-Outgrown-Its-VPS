@@ -1,6 +1,6 @@
 <div align="center">
 
-# 🎰 Signs Your Casino Has Outgrown Its VPS
+# 🎰 9 Signs Your Casino Has Outgrown Its VPS - 2026 Warning Signals
  
 ### 9 Warning Signals Before You Move to an iGaming Dedicated Server
  
